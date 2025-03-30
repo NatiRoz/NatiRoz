@@ -4,7 +4,7 @@
 Zmotywowana i zorganizowana specjalistka z doświadczeniem w analizie danych, administracji oraz zarządzaniu projektami. Mam doskonałe umiejętności interpersonalne i analityczne, które wykorzystuję w pracy nad rozwojem strategii i procesów organizacyjnych.  
 
 ## 🎯 Doświadczenie  
-🔹 **Specjalistka, Stowarzyszenie Metropolia Krakowska** *(październik 2024 – obecnie)*  
+🔹 **Specjalistka, Stowarzyszenie Metropolia Krakowska** *(październik 2024 – marzec 2025)*  
 - Wspieranie wdrażania strategii rozwoju Metropolia Krakowska 2030  
 - Organizacja wydarzeń i współpraca z partnerami krajowymi oraz międzynarodowymi  
 - Analiza danych i sporządzanie raportów  
